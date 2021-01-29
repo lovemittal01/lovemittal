@@ -1,0 +1,2 @@
+# lovemittal
+Hello,  I have my own You-Tube channel.  So because of that, I know a lot more about: • Video Creation • Editing • Thumbnail Designing • Description writing for Videos.  Also, I have my own Instagram page with 4.5k+ followers. So because of that, I know • Which type of designs got more engagement. • How to build a connection with the audience.  Software that I use: • Adobe Illustrator • Adobe Photoshop
